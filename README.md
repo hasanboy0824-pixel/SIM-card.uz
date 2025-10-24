@@ -1,0 +1,2 @@
+# SIM-card.uz
+M
